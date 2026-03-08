@@ -1,13 +1,18 @@
 
-![]([https://komarev.com/ghpvc/?username=moxxarellaa&label=hai&style=plastic&color=yellow](https://github.com/fartwizard567/fartwizard567/blob/main/dethkloknlinky.webp?raw=true))  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
+![](https://komarev.com/ghpvc/?username=moxxarellaa&label=meow&style=plastic&color=red)   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
 
 
 
-<p align="center"> <img src="https://github.com/user-attachments/assets/1c0dc767-ce25-49f7-8b71-eedf642bf471" width="500" height="105"> 
+<p align="center"> <img <img width="400" height="53" alt="image" src="https://github.com/user-attachments/assets/a8f59174-15e1-4db5-9b34-1584298c28cc" 
+> 
 
-<p align="center"> <img width="550" height="420" alt="Screenshot 2026-02-25 194705" src="https://github.com/user-attachments/assets/086ed2c7-8612-4d97-a328-9ffcf9bfa38f" />
+<p align="center"> <img <img width="600" height="334" alt="image" src="https://github.com/user-attachments/assets/1d1e1437-b574-45b1-a4fa-177ca8effec4" 
 
-<p align="center">   <img src="https://github.com/user-attachments/assets/33d6d26a-a112-4f85-ae1e-bd94825f74dc" alt="hi..." width="105" height="105"> 
+<p align="center">   <img <img width="250" height="142" alt="image" src="https://github.com/user-attachments/assets/b99640ef-16ef-406c-ae50-a8c5e5278c26"
+> 
 
 
-<p align="center">   <img src="https://github.com/user-attachments/assets/49516a19-9df0-4dcf-98ba-759727547657" alt="hi..." width="150" height="150"> <img src="https://github.com/user-attachments/assets/566b5bd7-9c51-448a-9c87-59c288927782" alt="hi..." width="190" height="190"> <img src="https://github.com/user-attachments/assets/df954815-3670-4f95-ada5-e89d04f60bc7" alt="hi..." width="150" height="150">
+<p align="center">   <img <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/126a2427-d24c-4eb2-8acd-bb2f084f293f" /
+> <img <img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/c5e232d0-653e-463f-a2f6-b3ceec12f147" 
+> <img <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/6987cbcc-a0b6-463a-bd3b-02b688df1a99" 
+>
