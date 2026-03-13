@@ -7,7 +7,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://github.com/fartwizard567/fartwizard567/blob/main/metalocalypse2.jpg?raw=true)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://github.com/fartwizard567/fartwizard567/blob/main/metalocalypse2.jpg?raw=true)
 ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
 ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://github.com/fartwizard567/fartwizard567/blob/main/pickle%20thoeinw%20up.webp?raw=true)
