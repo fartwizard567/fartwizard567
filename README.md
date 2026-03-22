@@ -18,7 +18,7 @@
 ![](https://github.com/fartwizard567/fartwizard567/blob/main/i%20feel%20so%20sigma!.png?raw=true)
 ![](https://github.com/fartwizard567/fartwizard567/blob/main/knubbler.webp?raw=true)
 ![](https://github.com/fartwizard567/fartwizard567/blob/main/glances.webp?raw=true)
-![](https://github.com/fartwizard567/fartwizard567/blob/main/goochiegoochiegoo.webp?raw=true)
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://github.com/fartwizard567/fartwizard567/blob/main/facebones.png?raw=true)
 ![]()
