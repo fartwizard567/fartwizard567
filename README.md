@@ -2,7 +2,7 @@
 ![](https://komarev.com/ghpvc/?username=moxxarellaa&label=meow&style=plastic&color=red)   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://github.com/fartwizard567/fartwizard567/blob/main/dethkloknlinky.webp?raw=true)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<h6 align="center">![](https://github.com/fartwizard567/fartwizard567/blob/main/dethkloknlinky.webp?raw=true)
 ㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
