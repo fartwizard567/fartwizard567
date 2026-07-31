@@ -12,7 +12,7 @@
 <h6 align="center">
 ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
 ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
-<h6 align="center"> <img width="400" height="53" alt="image" src="https://github.com/user-attachments/assets/95669887-c52c-4a98-9d0e-53ff13a0bed3" />
+<h6 align="center"><img width="400" height="53" alt="image" src="https://github.com/user-attachments/assets/95669887-c52c-4a98-9d0e-53ff13a0bed3" />
 
 <h6 align="center">
 
