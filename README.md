@@ -12,7 +12,8 @@
 <h6 align="center">
 ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
 ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
-ㅤㅤㅤㅤㅤㅤㅤㅤ ![]([https://github.com/fartwizard567/fartwizard567/blob/main/pickle%20thoeinw%20up.webp?raw=true](https://github.com/user-attachments/assets/a8f59174-15e1-4db5-9b34-1584298c28cc)
+![](<img width="400" height="53" alt="image" src="https://github.com/user-attachments/assets/95669887-c52c-4a98-9d0e-53ff13a0bed3" />
+)
 
 ![](https://github.com/fartwizard567/fartwizard567/blob/main/idocoke.png?raw=true)
  ![](https://github.com/fartwizard567/fartwizard567/blob/main/releasethekitties.webp?raw=true)
