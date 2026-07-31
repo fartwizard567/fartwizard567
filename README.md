@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=moxxarellaa&label=meow&style=plastic&color=red)   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
+<h6 align="center">![](https://komarev.com/ghpvc/?username=moxxarellaa&label=meow&style=plastic&color=red)   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀     ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://github.com/fartwizard567/fartwizard567/blob/main/dethkloknlinky.webp?raw=true)
