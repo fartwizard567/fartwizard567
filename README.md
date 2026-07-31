@@ -14,6 +14,8 @@
 ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
 <img width="400" height="53" alt="image" src="https://github.com/user-attachments/assets/95669887-c52c-4a98-9d0e-53ff13a0bed3" />
 
+<h6 align="center">
+
 ![](https://github.com/fartwizard567/fartwizard567/blob/main/idocoke.png?raw=true)
  ![](https://github.com/fartwizard567/fartwizard567/blob/main/releasethekitties.webp?raw=true)
  ![](https://github.com/fartwizard567/fartwizard567/blob/main/nickles.webp?raw=true)
