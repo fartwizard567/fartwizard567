@@ -12,7 +12,7 @@
 <h6 align="center">
 ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
 ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀  
-ㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://github.com/fartwizard567/fartwizard567/blob/main/pickle%20thoeinw%20up.webp?raw=true)
+ㅤㅤㅤㅤㅤㅤㅤㅤ ![]([https://github.com/fartwizard567/fartwizard567/blob/main/pickle%20thoeinw%20up.webp?raw=true](https://github.com/user-attachments/assets/a8f59174-15e1-4db5-9b34-1584298c28cc)
 
 ![](https://github.com/fartwizard567/fartwizard567/blob/main/idocoke.png?raw=true)
  ![](https://github.com/fartwizard567/fartwizard567/blob/main/releasethekitties.webp?raw=true)
